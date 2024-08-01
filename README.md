@@ -5,4 +5,6 @@
  pensamento computacional 
  ![springtrapdance](https://tenor.com/oIDGZz7dv2C.gif)
 
+ estou estudando no CESF 1° ano do ensino médio 
+
  
